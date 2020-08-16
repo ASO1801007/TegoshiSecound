@@ -1,0 +1,2 @@
+# TegoshiSecound
+２
