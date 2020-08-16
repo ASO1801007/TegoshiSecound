@@ -1,2 +1,0 @@
-# TegoshiSecound
-２
